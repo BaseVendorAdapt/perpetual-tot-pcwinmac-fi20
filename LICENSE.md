@@ -1,4 +1,4 @@
-# 
+# Último perpetual trading bot flujo de trabajo para Mac OS | Instantáneo perpetual trading bot flujo de trabajo para PC Windows. Con minería de liquidez y seguimiento de tendencia — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
